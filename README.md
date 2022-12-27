@@ -1,2 +1,3 @@
 # Avali-Gallery
-# Avali-Gallery
+A gallery full of Avalis.
+mmmmm. Now I want some chimken...
